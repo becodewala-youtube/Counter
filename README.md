@@ -1,1 +1,4 @@
-![screencapture-file-C-Users-VIKASH-KUMAR-OneDrive-Desktop-New-folder-from-solo-chat-over-counter-index-htm-2024-02-02-19_07_38](https://github.com/becodewala-youtube/Counter/assets/83962116/c1614cfd-22d3-457a-a183-9abe9236105f)
+## **Click on below image to watch tutorial** 👇
+
+
+[![youtube](https://img.youtube.com/vi/q8uE061KfIk?si/0.jpg)](https://www.youtube.com/watch?v=q8uE061KfIk?si)
